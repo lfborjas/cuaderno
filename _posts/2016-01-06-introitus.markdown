@@ -6,4 +6,4 @@ categories: jekyll theme
 location: Tegucigalpa, Honduras
 ---
 
-Today we write, because life that stays within one's head benefits no one, not even the original perceiver.
+I'll add something real here I promise, essays are hard!
