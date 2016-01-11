@@ -77,7 +77,7 @@ como iré exponiendo en un futuro ojalá cercano, para bien o para mal he decidi
 escribir en el idioma que pasen las cosas: mi trabajo y mi relación romántica
 ocurren en inglés, y a veces visito estados unidos u otros países donde la
 lingua franca es inglés, de modo que no puedo evitar haber vivido en ese idioma
-prestado, adoptado y naturalizado, quizá a estas alturas. Pero, de forma
+prestado, adoptado y naturalizado. Pero, de forma
 conversa, aún resido en un país hispanoparlante así que el castellano no se irá
 a ningún lado -- disculpas a unos y a otros. Detalles personales que sean
 completamente accesorios a la narrativa serán intransigentemente omitidos, soy
