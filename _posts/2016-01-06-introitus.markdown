@@ -66,3 +66,22 @@ deparado, pero esa realización ya no es algo que puedo ignorar. Espero que la
 desidia, la apatía, la procrastinación o simplemente "estar ocupado" no me
 sirvan de excusas para seguir pecando por omisión: a estas alturas, ya no lo
 siento excusable.
+
+En cuanto a logística: en este espacio que me he dado a mí mismo me gustaría
+tender a la forma larga: relatos de mi propia vida, en el pasado reciente o
+pretérito añejo, quizá reflexiones, quizá otros experimentos en la palabra
+escrita, pero no me gustaría poblarlo con cosas "de blog" como opiniones, cosas
+de trabajo/tecnología o reseñas o fotos sin ningún propósito exploratorio
+(aunque esto último quizá lo racionalize eventualmente). En cuanto a idiomas,
+como iré exponiendo en un futuro ojalá cercano, para bien o para mal he decidido
+escribir en el idioma que pasen las cosas: mi trabajo y mi relación romántica
+ocurren en inglés, y a veces visito estados unidos u otros países donde la
+lingua franca es inglés, de modo que no puedo evitar haber vivido en ese idioma
+prestado, adoptado y naturalizado, quizá a estas alturas. Pero, de forma
+conversa, aún resido en un país hispanoparlante así que el castellano no se irá
+a ningún lado -- disculpas a unos y a otros. Detalles personales que sean
+completamente accesorios a la narrativa serán intransigentemente omitidos, soy
+así de paranoico, ni que esto fuera instagram, facebook o donde sea que uno deja
+la vida entera a escrutinio público: también pretendo explorar, quizá sin mucho
+éxito por mientras aprendo, la fina línea entre sacar estas obras escritas al
+mundo sin tener que sacrificar mi sacrosanta privacidad.
