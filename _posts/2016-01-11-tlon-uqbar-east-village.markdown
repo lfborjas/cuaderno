@@ -14,11 +14,11 @@ of import and sort of my namesake; however, Ryan's kindness is conducive to me
 taking this mix quite well, so I nod and smile in acquiescence -- and make a
 mental note to check this Borges character out.
 
-A stroll to Strand is not an unwelcome journey, not one I haven't made
+A stroll to Strand is not an unwelcome journey, nor one I haven't made
 frequently in the couple of months I've been here this time around: as a lone
 and mostly socially inept and woefully introspective traveler, my solace is in
 books these days -- music waxes and wanes in protagonism here, but books seldom
-have done. Borges is not obscure: I find a $7 collection of short stories in the
+have. Borges is not obscure: I find a $7 collection of short stories in the
 staff picks tables, and being relatively (read, very) broke and dithering about
 whether I'll like this guy or not, I eschew a more expensive and comprehensive
 edition in spanish in favor of this slimmer and somewhat cheaper option. My haul
@@ -48,6 +48,6 @@ on the floor, reading more Borges, reveling in the peace of my new friend
 sleeping and all my fears momentarily allayed by the more pressing concerns of
 the circular ruins or the garden of the forking paths. He was with me as I left
 the East Village to stay in Washington Heights and the Upper West Side, and I
-returned to strand for the umpteenth time to by the spanish edition of the
+returned to Strand for the umpteenth time to buy the spanish edition of the
 Aleph. And the Aleph was with me, physically and figuratively, as I finally
 returned home, to my own reality, to being Luis Borjas.
