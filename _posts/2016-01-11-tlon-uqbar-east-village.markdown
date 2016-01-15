@@ -3,7 +3,7 @@ layout: post
 title:  "Tlön, Uqbar, East Village"
 date:   2016-01-11 00:10:00 -0500
 categories: jekyll theme
-location: New York City 
+location: Forest Hills, NY
 ---
 
 "You know, when I met you I thought your name was Luis Borges", says Ryan, my
