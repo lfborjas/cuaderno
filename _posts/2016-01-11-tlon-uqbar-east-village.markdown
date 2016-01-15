@@ -2,7 +2,7 @@
 layout: post
 title:  "Tlön, Uqbar, East Village"
 date:   2016-01-11 00:10:00 -0500
-categories: jekyll theme
+categories: nyc travel
 location: Forest Hills, NY
 ---
 

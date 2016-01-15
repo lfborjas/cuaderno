@@ -2,7 +2,7 @@
 layout: post
 title:  "A ride on the F train"
 date:   2016-01-15 00:14:00 -0500
-categories: jekyll theme
+categories: nyc travel
 location: Forest Hills, NY
 ---
 

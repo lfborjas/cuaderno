@@ -28,7 +28,7 @@ typekit_kit_id: zmq5ieg
 # Build settings
 gems: [jekyll-paginate]
 markdown: kramdown
-permalink: pretty
+permalink: ":year/:month/:day/:title"
 
 # Pagination
 paginate: 1
