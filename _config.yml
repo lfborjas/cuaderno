@@ -9,8 +9,8 @@
 title: Cuaderno
 author: Luis borjas
 author_link: https://lfborjas.com
-author_description: Spanglish ramblings 
-email: cuaderno@lfborjas.com
+author_description: Spanglish ramblings
+email: hello@lfborjas.com
 description: > # this means to ignore newlines until "baseurl:"
   Long posts trying to give back to life.
 baseurl: "" # the subpath of your site, e.g. /blog
