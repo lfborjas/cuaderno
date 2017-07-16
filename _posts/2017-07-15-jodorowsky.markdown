@@ -35,7 +35,7 @@ Some dude asked him about his statement regarding his latest films "I make them 
 - ok what else?  
 - 13, no, wait, no, not that; 12  
 - ok, hurry up, there's not a lot of time, just say whatever comes to you!  
-- 5.  
+- ok, er, 5.  
 - Okay, I have my three cards; six is the lovers, but in the marseille tarot it's just the lover; who is the lover? The Lover?
 - I don't know, is it the father?
 - You're right; Is it god, the sun? There's an angel in the card, you're right, it's something Divine. There's something you look up to, aspire, and love. But then there's 12. That's the hanged man. You wanted to reach out, but you're limited, you're upside down. The other card, the five, that's the Pope! Pope, father, papa. You were reaching out to the pope but you can't get to it.
